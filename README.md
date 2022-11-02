@@ -1,1 +1,0 @@
-# kc-test-image-markerv2o5y
